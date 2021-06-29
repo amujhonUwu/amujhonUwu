@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @amujhonUwu
-- 👀 I’m interested in be better
+- 👀 I’m interested in.. idk, i'm interested in many things... nothing specific
 - 🌱 I’m currently learning about desktop aplicacions
 - 💞️ I’m looking to collaborate on anything to helps me to learn an pratice
 - 📫 How to reach me: whatsapp (+593 99 910 3022) or mail (jhonalexandrocm@gmail.com)
