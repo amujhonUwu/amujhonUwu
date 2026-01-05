@@ -1,3 +1,2 @@
-- Hi, I’m Jhon Cedeño
-- I’m interested in.. idk, i'm interested in many things... nothing specific
-- I’m looking to collaborate on anything to helps me to learn an pratice
+Hi there! I’m Jhon Cedeño
+Currently, I´m developing flutter apps.
